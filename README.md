@@ -1,0 +1,1 @@
+# oasis_vida_dev_static_2
